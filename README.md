@@ -1,4 +1,4 @@
- ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fstore.steampowered.com%2Fapp%2F304390%2FFOR_HONOR%2F%3Fl%3Dportuguese&psig=AOvVaw25TyshLa7vlsR2ZTdjRtaK&ust=1717848629807000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCJD3w_66yYYDFQAAAAAdAAAAABAc)
+![](https://i.makeagif.com/media/12-28-2023/hss2Sd.gif)
 # Sobre mim **PAULO**
 - 👋 oi, I’m
 -  @pauloaugusto123
